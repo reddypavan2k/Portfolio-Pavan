@@ -1,3 +1,3 @@
 
 
-Currently working on projects and certification 
+Currently working on projects, certification and resume
